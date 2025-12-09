@@ -26,10 +26,18 @@
 | ------------- | ------------- |
 | <blockquote> <sub>**insta-block random reqs**</sub></br><sup>follow/friend = irl/close <ins>only</ins></sup> </blockquote> | <blockquote> <sub>**limit casual int if >18**</sub></br><sup>or lacking fandom etiquette</sup></blockquote> |
 
-<div align="center">
+  </br>
+  </br>
   
 | |
 | ------------- |
-| <sub>*feel free to interact, but i have <ins>little</ins> to <ins>no</ins> interest befriending anyone*</sub></br><sup>*through this game that i don't already know outside of it — sorry!*</sup>
+| <sub>feel free to interact, but i have <ins>little</ins> to <ins>no</ins> interest befriending</sub></br><sup>anyone through this game that i don't already know outside of it — sorry!</sup> |
+
+| |
+| ------------- |
+| <blockquote><sub>*far too many people here remain entirely unbothered by their own hostility and find a vindictive pride in*</sub></br><sup>*shared incuriosity, ignorance, truculence, and a general closed-minded shallowness — ghoulish, really!*</sup></blockquote>
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 
 
 </div>
