@@ -35,7 +35,7 @@
 
 | |
 | ------------- |
-| <blockquote><sub>*far too many people here remain entirely unbothered by their own hostility and find a vindictive pride in*</sub></br><sup>*a shared ignorance, intolerance, truculence, and general intellectual shallowness — ghoulish, really!*</sup></blockquote>
+| <blockquote><sub>*far too many people here remain entirely unbothered by their own hostility and find a vindictive pride in*</sub></br><sup>*shared truculence, ignorance & intolerance, and a general intellectual shallowness — ghoulish, really!*</sup></blockquote>
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 
