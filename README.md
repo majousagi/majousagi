@@ -5,7 +5,7 @@
 
 
 
-![](https://komarev.com/ghpvc/?username=hempisolate&label=                   𐔌՞. .՞𐦯                  &color=f394b2&base=665)
+![](https://komarev.com/ghpvc/?username=majousagi&label=                   𐔌՞. .՞𐦯                  &color=f394b2&base=1440)
 > 
 ## 
 
@@ -24,10 +24,10 @@
 
 | | |
 | ------------- | ------------- |
-| <blockquote> <sub>**insta-block random requests**</sub></br><sup>follow/friend list = irls/close <ins>only</ins></sup> </blockquote> | <blockquote> <sub>**limit casual interaction if <ins>>18</ins>**</sub></br><sup>or you lack fandom etiquette</sup></blockquote> |
+| <blockquote> <sub>**insta-block <ins>all</ins> unknown requests**</sub></br><sup>follow / friend list = irls / close <ins>only</ins></sup> </blockquote> | <blockquote> <sub>**limit casual interaction if <ins>>18</ins>**</sub></br><sup>or if lacking fandom etiquette</sup></blockquote> |
 
 | |
 | ------------- |
-| <blockquote> <sub>**i'd love to chat with you!**  ... but please know i have <ins>very little</ins> interest befriending</sub></br><sup>anyone through this game that i don't already explicitly know outside of it — **sorry!**</sup></blockquote>
+| <blockquote> <sub>**i'd really love to chat with you!**  ...but please know i have <ins>very little</ins> interest befriending</sub></br><sup>anyone through this game that i don't already explicitly know outside of it — **sorry!**</sup></blockquote>
 
 </div>
