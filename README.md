@@ -15,9 +15,6 @@
 > pro-fandom etiquette  <sup>[[1]](https://fanofacertainage.blog/2019/05/24/etiquette-and-entitlement-who-is-allowed-to-do-what-in-fandom/) [[2]](https://www.reddit.com/r/AO3/comments/1enyw50/fandom_etiquette_must_return/)</sup>
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=1osmny1bc0de3a5c2cmr0p1v8&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=f394b2&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=1osmny1bc0de3a5c2cmr0p1v8&redirect=true)
-</br>
-
  
  
 
@@ -26,7 +23,7 @@
 | ------------- | ------------- |
 | <blockquote> <sub>**insta-block <ins>all</ins> unknown requests**</sub></br><sup>friend list = irls / close <ins>only</ins></sup> </blockquote> | <blockquote> <sub>**limit casual interaction if <ins><18</ins>**</sub></br><sup>or if lacking fandom etiquette</sup></blockquote> |
 
-> **i'd really love to chat with you!**  that said, please note: i\
+> **i'd really love to chat with you!**    that said, please note: i\
 > have little to no interest fully befriending anyone through pony\
 > town that i don't <ins>also</ins> already know outside of it — **sorry!**
 
