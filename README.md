@@ -9,7 +9,7 @@
 > 
 ## 
 
-###   thr<ins>ee</ins> / <ins>maj</ins>or <sup>or</sup> <ins>current</ins> ponyname
+###   <ins>maj</ins>or <sup>or</sup> <ins>current</ins> ponyname
 > adult <sup>[20]</sup>  [plr](https://en.pronouns.page/they) **<ins>they<ins>** <sup>he</sup>  [`✝︎⃝`](https://en.wikipedia.org/wiki/Christian_universalism) \
 > afro rican  femme ⚣   <sub><img src="https://i.postimg.cc/dQCXn0Ts/progress-pride-flag-6-stripes-21.png" width="15"></sub> <sub><img src="https://i.postimg.cc/c4z0k6GD/aroace-5-stripes-20-px.png" width="15"></sub>\
 > <sup>**pro fandom etiquette**  [[1]](https://fanofacertainage.blog/2019/05/24/etiquette-and-entitlement-who-is-allowed-to-do-what-in-fandom/) [[2]](https://www.reddit.com/r/AO3/comments/1enyw50/fandom_etiquette_must_return/)</sup>
