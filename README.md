@@ -9,7 +9,7 @@ pro fandom etiquette
 > <sub>**professionally recognized with Dissociative  </sub>\
 <sup>Identity Disorder [ICD-10 F44.81] since 2025**</sup>
 
-![](https://komarev.com/ghpvc/?username=majousagi&label=           look after our planet.           &color=188e5a&base=1440)
+![](https://komarev.com/ghpvc/?username=majousagi&label=        look after our planet.        &color=188e5a&base=1440)
 
 | <sub>W2I: OFTEN IDLE</sub> | <sub>LIMITED INT: -21, SYS/FICT</sub>  | <sub>NO INT: -16</sub>
 | ------------- | ------------- | ------------- |
