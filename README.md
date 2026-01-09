@@ -19,7 +19,7 @@ pro fandom etiquette
 | ------------- | ------------- | ------------- |
 
 
-<sub>**absolutely no interest interacting with the online DID/plural community</sub>**\
+> <sub>**absolutely no interest interacting with the online DID/plural community</sub>**\
 <sup>**and participating in misinformation or non-academic discourse, sorry!</sup>**
 
 
