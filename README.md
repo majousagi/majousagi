@@ -14,7 +14,7 @@ pro-fandom etiquette
 
 
 
-| <sub>W2I: often idle</sub> | <sub>LIMITED INT: -21, SYSTEMS</sub>  | <sub>NO INT: 16-</sub>
+| <sub>W2I: often idle</sub> | <sub>LIMITED INT: -21, sys/fict</sub>  | <sub>NO INT: 16-</sub>
 | ------------- | ------------- | ------------- |
 
 > <sub>**professionally recognized with Dissociative Identity Disorder</sub>\
