@@ -8,7 +8,7 @@
 high femme ⚣ <sub><img src="https://i.postimg.cc/dQCXn0Ts/progress-pride-flag-6-stripes-21.png" width="16"> <img src="https://i.postimg.cc/c4z0k6GD/aroace-5-stripes-20-px.png" width="16"></sub>\
 pro fandom etiquette
 
-![](https://komarev.com/ghpvc/?username=majousagi&label=        look after our planet.        &color=188e5a&base=1440)
+![](https://komarev.com/ghpvc/?username=majousagi&label=     look after our planet.     &color=188e5a&base=1440)
 
 
 | <sub>W2I: OFTEN IDLE</sub> | <sub>LIMITED INT: -21, SYS/FICT</sub>  | <sub>NO INT: -16</sub>
