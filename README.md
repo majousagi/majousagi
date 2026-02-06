@@ -13,8 +13,8 @@ pro-fandom etiquette <sup>[[1]](https://fanofacertainage.blog/2019/05/24/etiqu
 > <sub>**professionally recognized with Dissociative</sub>\
 <sup>Identity Disorder [ICD-10 F44.81] c. 2025**</sup>
 
-| <sub><ins>W2I:</ins> often idle</sub> | <sub><ins>LIMITED INT:</ins> -21, sys/fict</sub>  | <sub><ins>NO INT:</ins> -16, shipping/disorder dicourse</sub>
-| ------------- | ------------- | ------------- |
+| <sub><ins>W2I:</ins> often idle</sub> | <sub><ins>LIMITED INT:</ins> -21, sys/fict</sub>  | <sub><ins>NO INT:</ins> -16</sub> | <sub><ins>FILTERED:</ins> disorder/ship discourse</sub>
+| ------------- | ------------- | ------------- | ------------- |
 
 > <sub><ins>zero</ins> interest interacting w/ the non-academic</sub>\
 <sup>DID/online plural community, nothing personal!</sup>
