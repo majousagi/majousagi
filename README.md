@@ -1,7 +1,6 @@
 <div align="center">
 
 ### 'sup? call me <ins>beak</ins>er.
-<sup>**[they](https://en.pronouns.page/they)/them | [it](https://en.pronouns.page/it/its)/its | [thou](https://en.pronouns.page/thou/thee/thy/thine/thineself)/thine</sup>**\
 <sup>https://beakerbong.atabook.org</sup>
 
 > adult <sup>21歳</sup> afro rican\
