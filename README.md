@@ -4,7 +4,7 @@
 <sup>https://beakerbong.atabook.org</sup>
 
 > adult <sup>21歳</sup> afro rican\
-they/them <sup>[he/it]</sup> <sub><img src="https://cdn.discordapp.com/emojis/1469939259598311540.webp?size=160" width="23"> <img src="https://cdn.discordapp.com/emojis/1469940033766297770.webp?size=64" width="23"> <img src="https://cdn.discordapp.com/emojis/1469941376345968855.webp?size=64" width="23"></sub>\
+they/them <sup>[he/it]</sup> <sub><img src="https://cdn.discordapp.com/emojis/1469939259598311540.webp?size=160" width="21"> <img src="https://cdn.discordapp.com/emojis/1469940033766297770.webp?size=64" width="21"> <img src="https://cdn.discordapp.com/emojis/1469941376345968855.webp?size=64" width="21"></sub>\
 pro-fandom etiquette <sup>[[1]](https://fanofacertainage.blog/2019/05/24/etiquette-and-entitlement-who-is-allowed-to-do-what-in-fandom/) [[2]](https://www.reddit.com/r/AO3/comments/1enyw50/fandom_etiquette_must_return/)
 
 > <sub>**non-shipper; i kindly ask self-proclaimed proshippers & "antis" alike to preemptively hide me.</sub>\
